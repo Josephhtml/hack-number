@@ -1,0 +1,2 @@
+# hack-number
+Hello everybody if you want to hack any number from your phone it is so easy step just go to call and press *62# and type the number like this *62#0034647555 and after press on call directly this cart number will be hacked from company can call this number this number can't reply to any call and his phone dont tell him you call or giv him a alling notification thankyou can you try this👌👌
